@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on unity projects if you need a C# coder just hit me up
 - 📫 How to reach me :
                        E-mail: fke8641@gmail.com  
-                       telegram : @ImMuted (ill check this more often
+                       telegram : @ImMuted (ill check this more often)
